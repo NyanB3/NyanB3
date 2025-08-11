@@ -10,7 +10,7 @@
 ɪɴᴛ!- ꜱᴀɪᴋɪ ᴋ, ᴄᴏᴏᴋɪᴇ ʀᴜɴ ᴋɪɴɢᴅᴏᴍ, ᴏʜꜱʜᴄ (ʟᴏᴏᴋ ᴀᴛ ᴍʏ ꜱᴛʀᴀᴡ ꜰᴏʀ ᴍᴏʀᴇ, ʙᴜᴛ ᴛʜᴇꜱᴇ ᴀʀᴇ ᴍʏ ᴍᴀɪɴ ᴏɴᴇꜱ ʜᴇʜ)
 
 ![mammamamaeamm](https://github.com/user-attachments/assets/c5a3e06d-cc4e-4acd-afba-f6d8a7a648d2)
-[Pronouns page]([https://en.pronouns.page/@M3LTEDD]
+[pronouns]([url](https://en.pronouns.page/@M3LTEDD))
 
 
 
