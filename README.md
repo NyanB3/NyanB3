@@ -1,16 +1,16 @@
-## Hi there 👋
+## .⋆♱"𝕋𝕖𝕝𝕝 𝕞𝕖, 𝕐𝕦𝕛𝕚 𝕀𝕥𝕒𝕕𝕠𝕣𝕚. ℍ𝕒𝕧𝕖 𝕪𝕠𝕦 𝕖𝕧𝕖𝕣 𝕤𝕥𝕠𝕡𝕡𝕖𝕕 𝕥𝕠 𝕔𝕠𝕦𝕟𝕥 𝕙𝕠𝕨 𝕞𝕒𝕟𝕪 𝕔𝕦𝕣𝕤𝕖𝕤 𝕪𝕠𝕦'𝕧𝕖 𝕜𝕚𝕝𝕝𝕖𝕕?".⋆♱
 
-<!--
-**NyanB3/NyanB3** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
 
-Here are some ideas to get you started:
+![hehehe](https://github.com/user-attachments/assets/8e20df14-a29e-4378-9b73-d0345cd78825)
 
-- 🔭 I’m currently working on ...
-- 🌱 I’m currently learning ...
-- 👯 I’m looking to collaborate on ...
-- 🤔 I’m looking for help with ...
-- 💬 Ask me about ...
-- 📫 How to reach me: ...
-- 😄 Pronouns: ...
-- ⚡ Fun fact: ...
--->
+ʜᴇʟʟᴏ, ᴀʟʟ! ᴡᴇʟᴄᴏᴍᴇ ᴛᴏ ᴛʜᴇ ᴄᴏᴏʟᴇꜱᴛ ꜰᴏʀ ꜱᴄʜᴏᴏʟ ɢɪᴛʜᴜʙ! 
+
+ᴅɴɪ- ꜰʀᴇᴀᴋꜱ, ʜᴏᴍᴏᴘʜᴏʙᴇꜱ ᴀɴᴅ ᴛʀᴀɴꜱᴘʜᴏʙᴇꜱ. ᴀɴᴅ ʏᴏᴜ ʙᴇɪɴɢ ᴀ ꜰʀᴇᴀᴋ ɪꜱ ʙᴀꜱᴇᴅ ᴏɴ ᴍʏ ᴏᴡɴ ᴅᴇꜰɪɴɪᴛᴏɴ, ꜱᴏ ɪꜰ ɪ ᴛʜɪɴᴋ ʏᴏᴜʀ ᴡᴇɪʀᴅ ᴏʀ ʏᴏᴜ ᴍᴀᴋᴇ ᴍᴇ ᴏʀ ᴍʏ ꜰʀɪᴇɴᴅꜱ ᴜɴᴄᴏᴍꜰʏ ɪ ᴡɪʟʟ ʜɪᴅᴇ ᴜ ᴏɴɢ ɢɴɢ.
+
+ɪɴᴛ!- ꜱᴀɪᴋɪ ᴋ, ᴄᴏᴏᴋɪᴇ ʀᴜɴ ᴋɪɴɢᴅᴏᴍ, ᴏʜꜱʜᴄ (ʟᴏᴏᴋ ᴀᴛ ᴍʏ ꜱᴛʀᴀᴡ ꜰᴏʀ ᴍᴏʀᴇ, ʙᴜᴛ ᴛʜᴇꜱᴇ ᴀʀᴇ ᴍʏ ᴍᴀɪɴ ᴏɴᴇꜱ ʜᴇʜ)
+
+![mammamamaeamm](https://github.com/user-attachments/assets/c5a3e06d-cc4e-4acd-afba-f6d8a7a648d2)
+[Pronouns page]([https://en.pronouns.page/@M3LTEDD]
+
+
+
