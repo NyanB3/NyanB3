@@ -1,5 +1,4 @@
 ## .⋆♱"𝕋𝕖𝕝𝕝 𝕞𝕖, 𝕐𝕦𝕛𝕚 𝕀𝕥𝕒𝕕𝕠𝕣𝕚. ℍ𝕒𝕧𝕖 𝕪𝕠𝕦 𝕖𝕧𝕖𝕣 𝕤𝕥𝕠𝕡𝕡𝕖𝕕 𝕥𝕠 𝕔𝕠𝕦𝕟𝕥 𝕙𝕠𝕨 𝕞𝕒𝕟𝕪 𝕔𝕦𝕣𝕤𝕖𝕤 𝕪𝕠𝕦'𝕧𝕖 𝕜𝕚𝕝𝕝𝕖𝕕?".⋆♱
-<img width="7000" height="300" alt="image__1_-removebg-preview" src="https://github.com/user-attachments/assets/18e4ef68-ee7e-4acc-b0d6-db33568d4e32" />
 
 ![hehehe](https://github.com/user-attachments/assets/8e20df14-a29e-4378-9b73-d0345cd78825)
 
