@@ -10,7 +10,7 @@
 
 ɪɴᴛ!- ꜱᴀɪᴋɪ ᴋ, ᴄᴏᴏᴋɪᴇ ʀᴜɴ ᴋɪɴɢᴅᴏᴍ, ᴏʜꜱʜᴄ (ʟᴏᴏᴋ ᴀᴛ ᴍʏ ꜱᴛʀᴀᴡ ꜰᴏʀ ᴍᴏʀᴇ, ʙᴜᴛ ᴛʜᴇꜱᴇ ᴀʀᴇ ᴍʏ ᴍᴀɪɴ ᴏɴᴇꜱ ʜᴇʜ)
 
-Also HUGE disclaimer! I super duper really really like calling people petnames, wheter be cutie, lovely, or sweetie. if you dont like that, please either tell me or dni sorry.. Nicknames are my love language, and calling friends a lovely, or sweetheart is just my way of saying i love ya <3. So no i dont mean any of these names in a sexual nor romantic way unless i state otherwise, Which is not often!!!
+Also HUGE disclaimer! I super duper really really like calling people petnames, wheter be cutie, lovely, or sweetie. if you dont like that, please either tell me or dni sorry.. Nicknames are my love language, and calling friends lovely, or sweetheart is just my way of saying i love ya <3. So no i dont mean any of these names in a sexual nor romantic way unless i state otherwise, Which is not often!!!
 
 ![mammamamaeamm](https://github.com/user-attachments/assets/c5a3e06d-cc4e-4acd-afba-f6d8a7a648d2)
 
