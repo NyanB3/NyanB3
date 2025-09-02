@@ -1,6 +1,6 @@
 ## ꧁♢✸ "Come now fools! The show has only JUST begun..!" ✸♢꧂
 
-<img width="1000" height="1300" alt="Screenshot 2025-09-01 at 10 36 17 PM" src="https://github.com/user-attachments/assets/f5680741-9e18-49ea-ba70-bae80e98c4e7" />
+<img width="999" height="1100" alt="Screenshot 2025-09-01 at 10 36 17 PM" src="https://github.com/user-attachments/assets/f5680741-9e18-49ea-ba70-bae80e98c4e7" />
 
 ℍ𝕖𝕝𝕝𝕠 𝕒𝕟𝕕 𝕨𝕖𝕝𝕔𝕠𝕞𝕖.. 𝕋𝕠 𝕥𝕙𝕖 𝕘𝕣𝕖𝕒𝕥𝕖𝕤𝕥 𝕊𝕙𝕠𝕨 𝕥𝕣𝕠𝕦𝕡𝕖!
 𝕀'𝕞 𝕄𝟛𝕝𝕥𝕖𝕕 𝕪𝕠𝕦𝕣 𝕘𝕠𝕠𝕗𝕪 𝕙𝕠𝕤𝕥..! 𝔸𝕟𝕕 𝕚𝕧𝕖 𝕒 𝕗𝕖𝕨 𝕣𝕦𝕝𝕖𝕤!
