@@ -11,7 +11,3 @@
 𝕄𝕠𝕣𝕖 𝕠𝕟 𝕞𝕪 𝕤𝕥𝕣𝕒𝕨𝕡𝕒𝕘𝕖! 
 
 [![spotify-github-profile](https://spotify-github-profile.kittinanx.com/api/view?uid=31mya65ojdhhiwmxd3pyjvafr754&cover_image=true&theme=default&show_offline=false&background_color=121212&interchange=false)](https://github.com/kittinan/spotify-github-profile)
-
-
-
-
