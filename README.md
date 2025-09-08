@@ -1,5 +1,5 @@
 ## ꧁♢✸"Living free and in the wild!" ✸♢꧂
-![](https://komarev.com/ghpvc/?username=NyanB3&color=41533f&=Crew-members!) <--ᒍOIᑎ TᕼE ᑕᖇEᗯ-!
+![](https://komarev.com/ghpvc/?username=NyanB3&color=41533f&label=Crew‎'Members!) <--ᒍOIᑎ TᕼE ᑕᖇEᗯ-!
 
 𝘾𝙝𝙖𝙢𝙚𝙡𝙚𝙤𝙣𝙨 𝙤𝙣 𝙏𝙖𝙧𝙜𝙚𝙩
 
