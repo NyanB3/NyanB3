@@ -1,3 +1,4 @@
+
 ## ꧁♢✸"Living free and in the wild!" ✸♢꧂
 
 <img width="10000" height="365" alt="plant2-removebg-preview (1)" src="https://github.com/user-attachments/assets/76f74586-e064-4465-95cb-f799d12d2c82" />
@@ -23,3 +24,6 @@
 
 
 <img width="10000" height="354" alt="Plant_1-removebg-preview (1)" src="https://github.com/user-attachments/assets/d933322f-0519-4595-aa98-f512f071eb8d" />
+
+
+  
