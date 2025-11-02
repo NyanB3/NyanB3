@@ -7,6 +7,8 @@
 
 ![](https://komarev.com/ghpvc/?username=NyanB3&color=A9A9A9&label=★!) 
 
+work in progress ok..?
+
 
 
 
