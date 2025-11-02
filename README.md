@@ -12,7 +12,7 @@ work in progress ok..?
 
 
 
-<details open>
+<details close>
   <summary>Blinkie collection</summary>
 add whatever blinkies you'd like here
 </details>
