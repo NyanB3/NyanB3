@@ -1,26 +1,23 @@
 
-## ꧁♢✸"Living free and in the wild!" ✸♢꧂
-
-<img width="10000" height="365" alt="plant2-removebg-preview (1)" src="https://github.com/user-attachments/assets/76f74586-e064-4465-95cb-f799d12d2c82" />
-
-
-![](https://komarev.com/ghpvc/?username=NyanB3&color=41533f&label=Crew‎'Members!) <--ᒍOIᑎ TᕼE ᑕᖇEᗯ-!
-
-
-𝘾𝙝𝙖𝙢𝙚𝙡𝙚𝙤𝙣𝙨 𝙤𝙣 𝙏𝙖𝙧𝙜𝙚𝙩-
-𝒲𝒾𝓁𝒹 𝒦𝓇𝒶𝓉𝓉𝓈: 𝒮𝑒𝒶𝓈𝑜𝓃 𝟥, 𝐸𝓅𝒾𝓈𝑜𝒹𝑒 𝟣𝟧
-
-𝐁𝐞𝐬𝐭 𝐞𝐩𝐢𝐬𝐨𝐝𝐞!
-
-𝙃𝙚𝙡𝙡𝙤 𝙖𝙡𝙡! 𝙒𝙚𝙡𝙘𝙤𝙢𝙚 𝙩𝙤 𝙩𝙝𝙚 𝙘𝙧𝙚𝙬! 
-𝙄'𝙢 𝙈𝙚𝙡𝙩𝙚𝙙, 𝙤𝙧 𝘾𝙝𝙧𝙞𝙨 𝙩𝙝𝙖𝙩𝙨 𝙘𝙤𝙤𝙡 𝙩𝙤𝙤 𝙝𝙚𝙝.
+<p align="center">
+<img width="900" height="37" alt="image" src="https://github.com/user-attachments/assets/615aa82a-da66-410a-b7c0-be30f2141330" /> 
 
   
+![](https://komarev.com/ghpvc/?username=NyanB3&color=1B1B1B&label=Eyes?)
+
+
+[Ata](https://gutzgal0re.atabook.org) <p align="center">
+[Strawpage](is-this-real-.straw.page) <p align="right">[Prns](https://en.pronouns.page/@M3LTEDD)
+
+
+![idk bruh smht](https://github.com/user-attachments/assets/dbdae737-df35-457a-9e45-dd363e361581)  ![something bruh](https://github.com/user-attachments/assets/d2214f7e-6ac6-41fd-ac11-ada7f17dbab8)<img width="250" height="260" alt="belele" src="https://github.com/user-attachments/assets/ff55d4c6-12a3-49ac-88f2-3d8e28b0c959" /><img width="250" height="250" alt="image" src="https://github.com/user-attachments/assets/118312ce-0eaf-44d8-96ee-d6bfdf6b76a2" />
 
 
 
 
-[<img width="400" height="200" alt="![blinkiesCafe-o6]" src="https://github.com/user-attachments/assets/f279989b-0371-44ff-aaf7-aeb3270a9f89" />](https://is-this-real-.straw.page) [<img width="400" height="200" alt="![blinkiesCafe-0v]" src="https://github.com/user-attachments/assets/02bdb129-079b-4387-922d-b90d675b443d" />](https://gutzgal0re.atabook.org)     [<img width="400" height="200" alt="![blinkiesCafe-vy]" src="https://github.com/user-attachments/assets/d1d37f90-cb24-4d55-9063-f7025dddc675" />](https://en.pronouns.page/@M3LTEDD) [<img width="400" height="200" alt="![blinkiesCafe-1G]" src="https://github.com/user-attachments/assets/2ddd0af6-da48-4ecd-81d1-7ae87cdcd278" />](https://www.roblox.com/users/4440685092/profile)
 
 
-<img width="10000" height="354" alt="Plant_1-removebg-preview (1)" src="https://github.com/user-attachments/assets/d933322f-0519-4595-aa98-f512f071eb8d" />
+
+<p align="center">
+<img width="800" height="150" alt="image" src="https://github.com/user-attachments/assets/608725e9-6d92-4817-a14e-0720625b3385" />
+
