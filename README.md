@@ -1,8 +1,8 @@
 <p align="center">
 <img width="300" height="400" alt="__️__len_404notfound_-removebg-preview" src="https://github.com/user-attachments/assets/ead374a2-0333-479d-af6c-4a9d775630ca" />  
 
-  ![](https://komarev.com/ghpvc/?username=NyanB3&label=Comerades+Contracted&style=flat-square&color=FFC3FE)  
-
+  ![](https://komarev.com/ghpvc/?username=NyanB3&label=Comerades+Contracted&style=flat-square&color=000000)  
+<Details close>
 <summary>✧ᴅɴɪ✧</summary>
  Pedos, Homophobes,Abelists. 
 </details>
