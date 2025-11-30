@@ -6,7 +6,7 @@
 < [straw](https://is-this-real-.straw.page) ⋆｡°✩ [ata](https://gutzgal0re.atabook.org) ⋆｡°✩ [prns](https://en.pronouns.page/@M3LTEDD) >
 
 <p align="center">
-☆ ︶︶︶  ౿ ָ 🎀 𞥊   ︶︶︶ ☆Ꮺ  M3lted . Minor . ! Mirrorજ⁀➴ ISTP  ೀ  Leo  ೀ  Anxiety . .
+☆ ︶︶︶  ౿ ָ 🎀 𞥊   ︶︶︶ ☆Ꮺ  M3lted  .  Minor . !  Mirror prns જ⁀➴ ISTP  ೀ  Leo  ೀ  Anxiety . .
   read straw  4  more  info  .ᐟ ₊˚⊹ ᰔ
 ︶︶︶ ⊹ ︶︶︶ ୨♡୧ ︶︶︶ ⊹ ︶︶︶
 
