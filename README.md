@@ -1,4 +1,4 @@
-![](https://komarev.com/ghpvc/?username=NyanB3&label=Comerades+Contracted&style=flat-square&color=000000)  
+![](https://komarev.com/ghpvc/?username=NyanB3&label=Dolls+.+.+!&style=flat-square&color=FFB6C1)  
 <img width="1279" height="148" alt="image" src="https://github.com/user-attachments/assets/ff5106c7-6910-4a9a-a92d-65567b479301" />
 <p align="center">
 <img width="583" height="428" alt="image_2025-11-29_215402178-removebg-preview" src="https://github.com/user-attachments/assets/eb5c4ae8-352a-4cd5-9c00-937e523f62a6" />
