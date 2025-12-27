@@ -10,7 +10,11 @@
   read straw  4  more  info  .ᐟ ₊˚⊹ ᰔ
 ︶︶︶ ⊹ ︶︶︶ ୨♡୧ ︶︶︶ ⊹ ︶︶︶
 
-[![spotify-github-profile](https://spotify-github-profile.kittinanx.com/api/view?uid=31iwdoi24vgiqvppdjq2r6zcdeou&cover_image=true&theme=novatorem&show_offline=true&background_color=121212&interchange=false&profanity=false&bar_color=f094c0&bar_color_cover=false)](https://github.com/kittinan/spotify-github-profile)
+<p align="center">
+  <a href="https://github.com/kittinan/spotify-github-profile">
+    <img src="https://spotify-github-profile.kittinanx.com/api/view?uid=31mya65ojdhhiwmxd3pyjvafr754&cover_image=true&theme=novatorem&show_offline=true&background_color=121212&interchange=false&profanity=false&bar_color=ff85ba&bar_color_cover=true">
+  </a>
+</p>
    
 <img width="1280" height="205" alt="image" src="https://github.com/user-attachments/assets/e1c4bd24-e450-4eb4-a145-10a4244bdd7e" />
 
