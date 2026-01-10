@@ -3,7 +3,7 @@
 <p align="center">
 <img width="583" height="428" alt="image_2025-11-29_215402178-removebg-preview" src="https://github.com/user-attachments/assets/eb5c4ae8-352a-4cd5-9c00-937e523f62a6" />
   
-< [straw](https://is-this-real-.straw.page) ⋆｡°✩ [ata](https://gutzgal0re.atabook.org) ⋆｡°✩ [prns](https://en.pronouns.page/@M3lted)⋆｡°✩ [guns.lol](https://guns.lol/m3lted) >
+< [straw](https://is-this-real-.straw.page) ⋆｡°✩ [straw2](nyannies.straw.page) ⋆｡°✩ [ata](https://gutzgal0re.atabook.org) ⋆｡°✩ [prns](https://en.pronouns.page/@M3lted)⋆｡°✩ [guns.lol](https://guns.lol/m3lted) >
 
 <p align="center">
 ☆ ︶︶︶  ౿ ָ 🎀 𞥊   ︶︶︶ ☆Ꮺ  M3lted  .  Minor . !  Mirror prns જ⁀➴ ISTP  ೀ  Leo  ೀ  Anxiety . .
